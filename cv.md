@@ -102,5 +102,3 @@ Many refresher courses during work (by equipment, leadership and soft skills)
 > For everything that happens to me, only I am responsible. (-)
 
 > Every cause has an effect, every effect has a cause.(-)
-
-> I know that I know nothing. But others do not know this either. (Socrates, or Democritus, or ...)
